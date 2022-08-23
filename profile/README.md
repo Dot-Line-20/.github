@@ -1,6 +1,6 @@
-## Hi there 👋
+## WE ARE DOT-LINE! 👋
 
-WE ARE DOT-LINE!
+
 
 <!--
 
